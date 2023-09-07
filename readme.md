@@ -1,4 +1,2 @@
 readme.md
-# if u read this u are gay
-
-froggo dont gay
+# some bullsht from 2021
